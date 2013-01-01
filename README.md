@@ -1,7 +1,7 @@
-Conte pour enfin 
+Conte pour enfin
 ==============
 
-Une nouvelle rédigée en 2010 en Russie. Sentez vous libre de proposer des
-améliorations/suites/suppressions. 
+Une nouvelle rédigée en 2010 en Russie. Améliorations/suites/suppressions
+bienvenues.
 
-Licence Creative Commons. 
+Licence Creative Commons.
